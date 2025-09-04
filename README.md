@@ -1,1 +1,1 @@
-# cs101-2025
+for CGU homeworks i guess...?
